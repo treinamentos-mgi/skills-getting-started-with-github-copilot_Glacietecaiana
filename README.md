@@ -1,1 +1,1 @@
-# skills-getting-started-with-github-copilot_Glacietecaiana
+# skills-getting-started-with-github-copilot-Glacietecaiana
